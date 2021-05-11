@@ -13,3 +13,4 @@ Notes on technology solopreneurship
 
 * [Niche Down](https://www.amazon.com/Niche-Down-Become-Legendary-Different-ebook/dp/B07FLKJJQQ)
 * [Red Yellow Green:  What Color is Your Money](https://learning.oreilly.com/library/view/red-yellow-green/202005PAIML/)
+* [The Purpose is Profit](https://www.amazon.com/Purpose-Profit-Starting-Building-Business-ebook/dp/B01HP04YMC)
